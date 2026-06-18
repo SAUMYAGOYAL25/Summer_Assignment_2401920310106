@@ -1,2 +1,0 @@
-wwek 3//
-DAY 4 ASSIGNMENT
